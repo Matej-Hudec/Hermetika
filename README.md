@@ -13,7 +13,7 @@
 ![](imgs/6.png)
 ![](imgs/7.png)
 3. Stiahni poznámky https://github.com/Matej-Hudec/Hermetika/archive/refs/heads/main.zip a vyextrahuj si priečinok poznámky
-   - pomocou WinRar, 7zip, WinZip alebo windowsa prieskumníka
+   - pomocou WinRar, 7zip, WinZip alebo windows prieskumníka
 4. Vlož poznámky do programu LOGSEQ <br />
 ![](imgs/7.png)
 ![](imgs/8.png)
