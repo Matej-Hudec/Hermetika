@@ -1,1 +1,0 @@
-- Je knihou na doplnenie teórie knihy [Brána k opravdickému zasväteniu](Brána k opravdickému zasväteniu)

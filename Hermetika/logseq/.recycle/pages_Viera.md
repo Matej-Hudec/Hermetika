@@ -1,6 +1,0 @@
-- [[Vôľa]]
-- Jej základom je, že všeobecne veríme v existenciu [Boha](Akáša (Boh)) alebo niečoho iného
-- Viera ako sila je doplnok impulzívnej časti [vôle](Vôľa)
-- Manifestačná viera je:
-	- sila, ktorá sa prejavuje tak absolútnym a pevným presvedčením, že to v čo veríme bezpodmienečne sa stáva skutočnosťou
-	- najvyšším aspektom [akášického princípu](Akáša)

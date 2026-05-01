@@ -1,7 +1,0 @@
-- [[Živel]]
-- Inak ako **_Vaju_**, princíp vzduchu
-- Ako tretí živel vznikol z [akáši](Akáša)
-- Zasvätenci ho nepovažujú za skutočný [živlový princíp](Živel), skôr ho považujú ako sprostredkovateľa medzi [ohnivým](Oheň) a [vodným](Voda) princípom, ktorý udržuje rovnováhu medzi aktívnym a pasívnym pôsobením [ohňa](Oheň) a [vody](Voda) a tak uvádza život do pohybu
-- Základné vlastnosti:
-	- Sucho (vlastnosť od [ohňa](Oheň))
-	- Vlhkosť (vlastnosť od [vody](Voda))

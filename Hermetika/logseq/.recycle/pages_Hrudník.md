@@ -1,2 +1,0 @@
-- [[Vzduch]]
-- Pôsobí tu živel [vzduchu](Vzduch)

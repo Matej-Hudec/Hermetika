@@ -1,3 +1,0 @@
-# [[Východné]]
-- # [[Západné]]
-- # [[Zmiešané]]

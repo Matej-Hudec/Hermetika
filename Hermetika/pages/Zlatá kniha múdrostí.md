@@ -1,5 +1,0 @@
-- [[Tarotová karta]]
-- Pozostáva zo štyroch základných [tarotových kariet](Tarotová karta) inak aj ako arkánov
-- Zároveň je to kniha o štvrtej [tarotovej karte](Tarotová karta) pojednávajúca o najvyššej teda runovej mágií:
-	- Čierna runová mágia sa používala na masívne vyvražďovanie židov za čias Hitlera
-	- Bardon ju inak ešte chcel pomenovať ako Knihu múdrosti

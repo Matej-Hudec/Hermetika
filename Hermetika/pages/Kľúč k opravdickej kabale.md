@@ -1,1 +1,0 @@
-- [Klíč k opravdové kabale](https://www.martinus.sk/211423-klic-k-opravdove-kabale/kniha)

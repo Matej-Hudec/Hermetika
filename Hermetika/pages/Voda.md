@@ -1,9 +1,0 @@
-- [[Živel]]
-- Inak ako **_Apas_**, princíp vody, magnetické fluidum
-- Ako druhý živel vznikol z [akáši](Akáša)
-- Protipól k [ohnivému princípu](Oheň)
-- Základné vlastnosti:
-	- Implodovanie/scvrknutie/zmrštenie (magnetické fluidum)
-	- Chlad
-- Temnota:
-	- Je aspektom princípu vody

@@ -1,1 +1,0 @@
-- [Praxe magické evokace](https://www.martinus.sk/159841-praxe-magicke-evokace/kniha)

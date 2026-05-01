@@ -1,7 +1,0 @@
-- [[Živel]]
-- Inak ako **_Prithivi_**, princíp zeme, štvorpólový magnet (elektromagnetické fluidum)
-- Ako štvrtý živel vznikol z [akáši](Akáša)
-- Zahrňuje v sebe [princíp](Živel) [ohňa](Oheň), [vody](Voda), [vzduchu](Vzduch) a dáva im konkrétnu formu zároveň ich obmedzuje v ich pôsobení
-- Základné vlastnosti:
-	- Stuhnutie (spojenie striedavých pôsobení [ohňa](Oheň), [vody](Voda) a [vzduchu](Vzduch))
-	- Priestorovosť, mierka, váha, čas (obmedzuje pôsobenie [ohňa](Oheň), [vody](Voda) a [vzduchu](Vzduch))

@@ -1,2 +1,0 @@
-- [[1. Časť -> Teoretické zasväcovanie]], [[2. Časť -> Praktické zasväcovanie]], [[Pomôcka k introspekcií]], [[Otázky na Mistra Ariona]]
-- [Brána k opravdovému zasvěcení](https://www.martinus.sk/64013-brana-k-opravdovemu-zasveceni/kniha)
