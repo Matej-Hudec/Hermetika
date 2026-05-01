@@ -1,1 +1,5 @@
 - [Praxe magické evokace](https://www.martinus.sk/159841-praxe-magicke-evokace/kniha)
+	- **Príbeh Pokea Runyona:**
+		- Ide o príbeh známeho okultistu Pokea Runyona, ktorý sa pokúsil evokovať jedného z Bardonových **merkuriálnych géniov**. Namiesto očakávanej entity sa mu však zjavil **goetický démon Oay** (v prepise zdroja uvedené ako „Oay“, čo môže byť skomolenina mena Orobas)
+- Za mňa možnosť nahradiť možno lepším systémom
+	- [Lyam Thomas Christopher - Kabbalah, Magic](https://www.google.sk/books/edition/Kabbalah_Magic_and_the_Great_Work_of_Sel/VBodeXR2hD4C?hl=sk&gbpv=0)
