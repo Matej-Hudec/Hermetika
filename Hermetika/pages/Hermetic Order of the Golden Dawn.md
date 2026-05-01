@@ -1,0 +1,42 @@
+# Hermetický rád Zlatého úsvitu
+- Vznikol v roku 1888 v Londýne
+- Založili ho traja slobodomurári:
+	- William Robert Woodman, William Wynn Westcott a Samuel Liddell MacGregor Mathers
+- Ide prevažne o ceremoniálnu, rituálnu a planetárnu okultnú mágiu
+- ## Stupne:
+- Prvý alebo Vonkajší rád (Outer Order)
+	- Neophyte
+	- Zelator
+	- Theoricus
+	- Practicus
+	- Philosophus
+	- Portal
+- Druhý alebo Vnútorný rád (Inner Order)
+	- Adeptus Minor
+	- Adeptus Major
+	- Adeptus Exemptus
+- Tretí alebo Neviditeľný rád (Third Order)
+	- Magister Templi
+	- Magus
+	- Ipsissimus
+- ## Lesser Ritual (nižšie obrady)
+- Lesser Ritual of the Pentagram (LRP)
+	- Slúži na čistenie priestoru a ochranu
+	- Existujú dve verzie:
+		- LIRP -> Invokačný (Invocating) -> všetky gestá sa začínajú zhora
+		- LBRP -> Vyháňací (Banishing) -> všetky gestá sa začínajú zdola
+- Lesser Ritual of the Hexagram (LRH)
+	- Pracuje s planetárnymi silami a vyššími energetickými úrovňami
+	- Existujú dve verzie:
+		- LIRH -> Invokačný (Invocating) -> všetky gestá sa začínajú zhora
+		- LBRH -> Vyháňací (Banishing) -> všetky gestá sa začínajú zdola
+- ## Greater Ritual (vyššie obrady)
+- Greater Ritual of the Pentagram (GRP)
+	- Používa sa na prácu s konkrétnymi elementmi
+	- Vyžaduje znalosť atribútov archanjelov, farieb a ďalších zodpovedajúcich symbolov
+- Greater Ritual of the Hexagram (GRH)
+	- Používa sa na planetárne a kabalistické invokácie
+- ## Other Rituals (ďalšie obrady)
+- Middle Pillar Ritual
+- Analysis of the Keyword
+- The Rose Cross Ritual (Ritual of the Rose Cross)

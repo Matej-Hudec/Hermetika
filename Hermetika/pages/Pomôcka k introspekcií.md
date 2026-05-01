@@ -1,0 +1,2 @@
+- Je knihou, ktorá má napomôcť s nadobudnutím [živlovej](Živel) rovnováhy pomocou vlastnej introspekcií
+- Sú v nej podrobnejšie zaradené vlastnosti jednotlivým [živlom](Živel)

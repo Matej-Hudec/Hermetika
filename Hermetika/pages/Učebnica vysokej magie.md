@@ -1,0 +1,2 @@
+- [[Tarotová karta]]
+- Je to finálne a najpodrobnejšie rozpísanie knih [Brána k opravdickému zasväteniu](Brána k opravdickému zasväteniu), [Prax magickej evokácie](Prax magickej evokácie), [Kľúč k opravdickej kabale](Kľúč k opravdickej kabale), [Zlatá kniha múdrostí](Zlatá kniha múdrostí)

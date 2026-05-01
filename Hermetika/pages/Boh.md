@@ -1,0 +1,64 @@
+- Inak aj ako Stvoriteľ
+- Vo význame ako entita, bytosť, postava
+- Už od pradávna veril človek v niečo vyššie, nadzmyslové, v niečo, čo zbožňoval, neprihliadajúc na to, či išlo o zosobnenú alebo vymyslenú božskú predstavu:
+	- Čo nemohol pojať a pochopiť, pripisoval vždy vyššej moci, takto vznikli božstvá celých národov, dobré i zlé (démoni)
+	- Počas rôznych čias došlo k uctievaniu bohov, anjelov, demiurgov, démonov a duchov, čo napospol zodpovedalo mentalite jednotlivých národov, bez ohľadu na to, či uctievaní žili skutočne alebo len v predstave
+	- Vývoj ľudstva znížil počet vybájaných božstiev, najmä vtedy, keď veda objasnila rôzne úkazy, ktoré predtým boli pripisované výhradne bohom
+	- Keby z histórie národov mali byť uvedené všetky jednotlivosti božských ideí, bolo by treba popísať celé zväzky
+- Pozrime sa na božskú ideu z magického hľadiska:
+	- Pre priemerného človeka:
+		- Je božská idea oporný bod jeho ducha, aby nebol v neistote alebo sa nestrácal
+		- Jeho Boh mu zostane vždy nepochopiteľný a nepredstaviteľný
+	- Pre mága:
+		- Pozná svojho Boha vo všetkých aspektoch
+		- Neuspokojí sa s jednoduchým uctievaním, ale pretože vie, že bol stvorený podľa obrazu božieho a je teda časťou Boha
+		- Vidí svoj najvyšší ideál, svoju svätú povinnosť a svoj najvzdialenejší cieľ v splynutí s Bohom, túži sa stať Boho-človekom
+		- Vzostup k tomuto vznešenému cieľu popisujem v ďalšom obsahu:
+			- Syntéza splynutia s Bohom spočíva vo vývine božskej idey od najnižšieho stupňa počnúc až k najvyšším natoľko, až dôjde k spojeniu s Univerzálnym:
+				- Mág má potom na vôli:
+					- Vzdať sa svojej individuality:
+						- Pri splynutí sa vzdá svojej individuality a dobrovoľne sa rozplynie
+						- Mystická terminológia toto splynutie nazýva mystickou smrťou
+					- Ponechať si svoju individualitu:
+						- Takí velikáni sa obyčajne vracajú na zem s určitou svätou úlohou alebo misií
+						- Na vzostupe je zasvätený mág zároveň mystikom
+			- Skutočné zasvätenie:
+				- Nerobí rozdielu medzi mystickou a magickou cestou
+				- Ide o jediné pravé zasvätenie, ktoré oba pojmy (mystická cesta a magická cesta) spája
+				- Pri plánovitom postupnom vývoji netreba sa obávať pošmyknutia
+				- Neúspech a neblahé následky sú vopred vylúčené, pretože vývin sa deje pomaly, ale iste
+				- Pozoruje božskú ideu na základe:
+					- Štyroch [živlov](Živel):
+						- Princípu ohňa:
+							- Pripadá všemohúcnosť a vše sila
+						- Princípu vzduchu:
+							- Pripadá múdrosť, čistota a jas:
+								- Z čoho vychádza univerzálna zákonitosť
+						- Vodnému princípu:
+							- Pripadá láska a večný život
+						- Zemnému princípu:
+							- Pripadá všadeprítomnosť, nesmrteľnosť
+								- Z čoho vychádza večnosť
+						- Tieto štyri aspekty tvoria najvyššie božstvo
+					- Tetragramatónu
+					- Nevysloviteľného, Najvyššieho
+				- Cestu k tomuto najvyššiemu božstvu musíme prakticky nastúpiť od najnižšej úrovne, aby sme v sebe dosiahli uskutočnenie Boha
+				- Šťastný je ten, kto to dosiahne ešte v tomto živote
+				- Nech sa nikto neľaká námahy, lebo každý raz dôjde k cieľu
+				- Nezáleží na tom, aký pojem Boha zasvätenec zvolí, či Krista, Budhu, Brahmu, Alláha alebo iného, to je jeho individuálnou záležitosťou, pri zasväcovaní ide predovšetkým o ideu:
+					- Mystik:
+						- Sa vo svojej predstave bude približovať Bohu všeláskou
+					- Jogín:
+						- Sleduje najviac tiež jeden božský aspekt a to:
+							- Bhakti-jogín:
+								- ide cestou lásky a oddanosti Radja (čítaj radža)
+							- Hatha-jogín:
+								- ide cestou ovládania a vôle
+							- Djnana-jogín (čítaj džňána):
+								- ide cestou múdrosti a poznania
+			- Niektoré iné mystické a duchovné smery:
+				- Tie, ktoré sa meditovaním alebo inými duchovnými smernicami zaoberajú hneď s najvyššími problémami bez toho, aby prešli nižšími stupňami
+				- Sú také, ako keby sa niekto chopil hneď univerzitného štúdia bez predchádzajúcej návštevy elementárnych tried
+				- Následky takého jednostranného školenia sú v niektorých prípadoch veľmi neblahé a podľa založenia jednotlivca niekedy dokonca aj drastické
+				- Omyl väzí v tom, že väčšina študijného materiálu pochádza z Orientu, kde hmotný a astrálny svet platí za mayu (svet klamu) a nie je mu venovaná náležitá pozornosť
+				- Tie teda neposkytujú skutočné zasvätenie

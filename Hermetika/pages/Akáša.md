@@ -1,0 +1,18 @@
+- [[Živel]]
+- Inak aj ako akášický princíp, sféra príčin, princíp éteru, éter, princíp príčiny, Božský princíp, Božská prezreteľnosť, sféra Boha, Božia sféra, Božia úroveň, Boží svet, Božie svetlo
+- Riadi a udržuje Svet
+- Akáša je:
+	- Piatym najjemnejším živlom -> princípom príčiny, môžeme ho považovať za piatu silu, prasilu, teda za takzvanú kvínt-esenciu, ktorá všetko vytvorila a udržuje to v rovnováhe
+	- Teda príčina vytvorenia mikrokozmu a makrokozmu
+	- Ono nestvorené, nepochopiteľné, nedefinovateľné
+	- Bez času a priestoru
+	- Počiatkom a čistotou všetkých myšlienok a ideí
+	- Svetom príčin, v ktorom sa všetko vytvorené udržuje od najvyšších sfér až po tie najnižšie
+	- Kvínt-esenciou alchymistov
+	- VŠETKÝM vo VŠETKOM
+- Indická náuka:
+	- Hovorí, že štyri hrubšie **Tatvy** (živly) [oheň](Oheň), [voda](Voda), [vzduch](Vzduch), [zem](Zem) vznikly z **Tatvy** (živla) piatého z akášického princípu
+- Karma (zákon príčiny a účinku):
+	- Je aspektom akášického princípu
+	- Je najvznešenejším a najvyšším zákonom
+	- Podliehajú mu aj [živlové princípy](Živel)

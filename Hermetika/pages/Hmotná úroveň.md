@@ -1,0 +1,44 @@
+- Inak aj ako hmotný svet, hrubohmotný svet, fyzický svet
+- Je to sféra [fyzického tela](Hmotné telo) so všetkými jeho silami
+- Vznikla pôsobením [štyroch živlov](Živel) z [akáši](Akáša)
+- Vznikla z [akášického princípu](Akáša) [fyzického tela](Hmotné telo)
+- Podlieha času a priestoru
+- V škole sme mali popísaný hrubohmotný svet so zreteľom:
+	- Na živú a neživú prírodu
+	- Na zvieraciu ríšu
+	- Na fyzikálne úkazy v prírode (ako dochádza k dažďu, búrke)
+	- Na póly zeme (severný pól, južný pól)
+- Poznanie hmotného sveta pomocou živlov a ich polarity:
+	- Triviálne:
+		- Na hmotnom svete sa na hmotnej úrovni prejavujú hrubohmotné [živly](Živel)
+	- Netriviálne:
+		- Na našej krajine sa odohráva práca živlov najjemnejším spôsobom práve tak, ako v ľudskom tele, ak sledujeme analógiu prídeme na to, ako utvoriť k živlom rovnobežku potom musíme uznať, že analógia k ľudskému telu je oprávnená
+		- Príčina a činnosť všetkých hrubohmotných [živlov](Živel):
+			- Na základe znalosti hrubohmotných [živlov](Živel) treba vedieť si odvodiť správne použitie [živlov](Živel) v rámci ich príslušných analógií v úrovniach -> [hmotná úroveň](Hmotná úroveň), [mentálna úroveň](Mentálna úroveň), [astrálna úroveň](Astrálna úroveň), a teda tak sa dajú nadviazať aj styky s vyššími svetmi
+		- Pôsobenie [živlov](Živel) na prírodu:
+			- [Živel ohňa](Oheň):
+				- Má vo svojej aktivite v prírode úlohu všetko oživovať
+				- Má vo svojej negativite v prírode úlohu všetko rozkladať a ničiť
+			- [Živel vody](Voda):
+				- Má vo svojej aktivite v prírode úlohu všetko budovať
+				- Má vo svojej negativite v prírode úlohu všetko ničiť
+			- [Živel vzduchu](Vzduch):
+				- Sa svojou podvojnou polaritou v prírode neutrálnym, vyrovnávajúcim a udržiavacím princípom
+			- [Živel zeme](Zem):
+				- Pôsobí v ňom okrem ostatných živlov aj štvorpólový magnet so svojou polaritou
+				- Združuje v sebe následkom svojej špecifickej vlastnosti o kohézii dva hlavné živly [ohňa](Oheň) a [vody](Voda) s neutrálnosťou [vzduchu](Vzduch), takže môžeme [zemný živel](Zem) považovať za to najhrubohmotnejšie
+			- [Živel ohňa](Oheň) spolu so [živlom vzduchu](Vzduch):
+				- Vytvárajú [živel zeme](Zem) vzájomným pôsobením na základe tých istých zákonov, ako v tele dve základné fluida so vzájomnou činnosťou a to elektrické a magnetické
+				- Riadia svojimi fluidami všetko hmotné na našej zemi, ovplyvňujú všetky chemické pochody zvonku i vo vnútri zeme, v ríši nerastov, rastlinstva a zvierane
+				- Elektrické fluidum sa nachádza v strede a fluidum magnetické na povrchu našej zeme
+					- Magnetické fluidum povrchu zemského udržuje všetko hmotné, týkajúce sa súdržnosti (kohézie), nehľadiac k vlastnosti vodného princípu
+					- Špecifickou vlastnosťou každého telesa, závislého na zložitosti živlu je, že má každý predmet so zreteľom na elektrické fluidum vytvára určité žiarenie, čo sú takzvané elektrónové kmity, ktoré k sebe priťahuje všeobecne magnetické fluidum hmotného sveta -> túto príťažlivosť nazývame váhou (váha je teda úkazom príťažlivej sily zeme)
+						- Nám známa príťažlivosť železa a niklu je len malým príkladom, výstižnejšie povedané je vlastne len napodobeninou toho, čo sa na našej zemi deje vo veľkom
+					- To, čo na našej krajine poznáme ako magnetizmus a elektrinu, je úkazom štvorpólového magnetu, lebo vieme ľubovoľne premeniť magnetizmus na elektrinu a mechanickou cestou opäť elektrinu v magnetizmus
+						- Premieňanie jednej sily na druhú je vlastne už alchymistickým alebo magickým pochodom, ktorý počas doby tak zovšeobecnel, že sa v ňom alchýmia alebo mágia už nevidí a pripisuje sa teda jednoducho fyzikálnej vede -> je to jedna z možností použitia štvorpólového magnetu
+					- Prenos elektrického a magnetického fluida je pôvodcom všetkých vynálezov, ktoré sa týkajú prenosu do diaľky éterom, ako napr. rádio, telegrafie, telefónie, televízie a budú pôvodcom aj všetkých ostatných vynálezov, ktoré ešte budúcnosť pomocou elektrického a magnetického fluida v éteri ešte len objavia, avšak základňa a zákony boli, sú a zostanú vždy tie isté
+		- Každý zasvätenec, ktorý je schopný používať všetky živlové sily alebo veľké tajomstvo Tetragramatónu na všetkých úrovniach, dokáže aj na našom hmotnom svete veľké veci, ktoré v očiach iných budú platiť ako hotové zázraky, pre zasvätencov to však zázraky nie sú, aj najväčšie zvláštnosť môže na základe znalosti zákonov vysvetliť
+		- Na tejto tu popísanej zásade spočíva na našej krajine všetok rast, všetko zrenie, všetok život a tiež všetko umieranie
+		- Zasvätencovi je následkom toho tiež jasné, že smrť neznamená rozpadnutie v nič, ale je iba prechodom z jedného štádia do druhého
+		- Hmotný svet vzišiel z [akášického princípu](Akáša) -> teda z éteru
+			- Akášický princíp Svet tiež riadi a udržuje

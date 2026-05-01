@@ -1,0 +1,39 @@
+- Nastávajúci zasvätenec:
+	- Bude vyznávať univerzálne náboženstvo
+	- Pozná, že každé náboženstvo má svoje svetlé aj tienisté stránky
+	- Svetlé stránky si ponechá pre seba a slabiny tienisté stránky si nebude všímať
+	- Nemusí samozrejme vyznávať každé náboženstvo, ale ku všetkým bude mať náležitú úctu
+	- Každé náboženstvo má svoj vlastný božský princíp, nech už ide o náboženstvo kresťanské, budhistické, mohamedánske či iné
+	- Svojmu náboženstvu zostane zásadne verný
+	- Oficiálne dogmy svojej cirkvi ho však neuspokojí a preto sa vynasnaží vniknúť hlbšie do božieho stánku, čo je tiež účelom zasväcovanie
+	- Si na základe univerzálnych zákonov utvorí svoj vlastný univerzálny názor, v ktorom bude vidieť pravé náboženstvo
+	- Pozorovaním dospeje k názoru, že každý cirkevník bude, nehľadiac k slabostiam, vyhlasovať svoju cirkev vždy za najlepšie zo všetkých
+	- Každá cirkevná pravda je relatívna a jej pochopenie závisí od zrelosti jednotlivca
+	- Ponechá v tomto ohľade každému jeho vlastné presvedčenie, nebude nikomu svoje vlastné presvedčenie vnucovať, nikoho kritizovať alebo dokonca odsudzovať
+	- Fanatikov alebo ateistov vo svojom vnútri nanajvýš poľutuje bez toho, aby to dal najavo
+- Každý nech sa drží toho, v čo verí, čo ho robí šťastným a spokojným, keby každý dbal tejto zásady, nevládla by ani nenávisť, ani cirkevné rozpory, nebolo by dôvodu k rozdielnosti názorov a všetky duchovné smery by svorne vedľa seba prospievali
+- Inak je tomu však vtedy, keď hľadajúci, ktorého nemohli uspokojiť ani materializmus ani dogmy, túžia po duchovnej potrave a obracia sa priamo na zasvätenci o radu a vysvetlenie:
+	- V takom prípade je zasvätenec povinný poskytnúť hľadajúcemu podľa stupňa chápavosti náležité vysvetlenie
+	- Zasvätenec nech potom nešetrí ani času ani námahy, aby poskytol hľadajúcemu svoje duchovné poklady a viedol ho k svetlu
+-
+- [Rota](https://frabato.cz/viewtopic.php?f=8&t=2019):
+- Každé náboženstvo hlása, že len ono samo jediné je to pravé, neomylné a že len cez jeho náuku dôjdeme k Bohu
+- Niektoré dokonca podnecujú k nenávisti a násiliu voči tým, ktorí veria v iné náboženstvo alebo neveria v žiadnej
+- A jeho stúpenci sú schopní v mene svojej idey zabiť svojho blížneho a páchať rôzne zverstvá
+- Ale aj to je pre ľudstvo výchovné
+- Každé náboženstvo v sebe nesie pravdu i omyl a hermetik ho musí preosiať a vedieť oddeliť túto pravdu od omylu
+- Tak ako nemôže byť mágia bez mystiky, nemôže byť to pravé zdravé a neomylné univerzálne náboženstvo bez vedy mágie
+- Náboženstvo (tá ktorá som ja sama mala možnosť malou mierou preštudovať a nejakým spôsobom uchopiť a pochopiť) mágiu ale zakazujú, priamo pred ňou varujú
+- Je to tým, že by sa každý veriaci prestal báť toho, čím sa ho snaží postrašiť a ovládnuť jeho náboženstvo a už by nebol tak poslušný v nárokoch ktoré sú na neho kladené
+- Nedá sa povedať, že by niečo z toho čo som napísala bolo zlé, vôbec nie, naopak
+- Ľudstvo ako také nie je na úrovni, aby mohlo chápať mysticko magickú náuku
+- Ľudia svojím spôsobom potrebujú obmedzenia a strach na to, aby dokázali dodržiavať slušné, morálne zásady v spoločnosti, nech im tieto pravidlá dáva vláda jednotlivých štátov alebo rôzne náboženstvá
+- Z druhej strany je každé náboženstvo náukou o Bohu a obsahuje v sebe to čisté a múdre a môže otvoriť tomu kto hľadá studnicu poznania
+- Preto nehaňme žiadne náboženstvo, ale učme sa
+- Pôjdeli náboženstvo vedľa mágie spoločnou cestou, všetky omyly sa ukážu a dokonca sa dôjde k pochopeniu, prečo tieto omyly stále žijú ak čomu dobrému slúžia
+- Pretože nič vo stvorení, nič čo existuje nie je zlé, všetko je dobre a dobré vo svojom trvaní
+- Všetko je svojím spôsobom poučné a výchovné a okrem Pravdy samotnej, aj premenné
+- Nepestujme v sebe predsudky a nenávisť k ničomu a k nikomu, pretože kvôli tomu koho alebo čo súdime a odsudzujeme, budeme sami súdení. Každý omyl má v sebe ukrytú aj pravdu a tým pre nás môže byť veľmi poučný a užitočný
+- Rada by som ešte vysvetlila, aby nedošlo k nedorozumeniu, prečo nemôže univerzálne náboženstvo ísť bez mágie
+- Z toho dôvodu, že by si veriaci vysvetľovali javy magického pôvodu ako zázraky a to je nevedomosť, omyl. Snáď som všetko napísala zrozumiteľne
+- Ďakujem

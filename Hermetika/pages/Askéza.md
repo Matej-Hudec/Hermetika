@@ -1,0 +1,27 @@
+- Odjakživa sa vo všetkých náboženstvách, sektách, duchovných smeroch a školských sústavách kladie veľký dôraz na askézu v niektorých orientálnych sústavách hraničí akéza s nezdravým fanatizmom, ktorý na zdraví natropil už mnoho škôd, umŕtvovanie mäsa je, všeobecne vzaté, práve také jednostranné, ako keby sme sa starali o vývin iba jednej časti ľudského tela a druhú úmyselne zanedbávali
+- Ak slúži askéza telu ako diéta, aby zbavila telo rôznych usadenín a iných nečistôt, ďalej aby odstránila choroby a vyrovnala disharmónie, potom je úplne na mieste, inak sa ale musíme vyhnúť akémukoľvek preháňaniu
+- Kto musí fyzicky ťažko pracovať, nerobí dobre, keď telu odopiera potrebné látky len preto, že sa súkromne zaoberá jogou alebo mystikou, také extrémnosti nevyhnutne poškodia zdravie:
+	- Vegetariánstvo, pokiaľ neslúži ako prostriedok veci, na odstránenie usadenín v tele, nie je pre duchovný pokrok a pre duchovný vývin bezpodmienečne nutné
+	- Dočasné vystrihanie sa mäsitých jedál vyžadujú prípravné práce niektorých magických operácií a to len na určitú dobu, to isté platí o zdržanlivosti v pohlavnom živote
+	- Myšlienka, že pojedaním zvieracieho mäsa prijíma telo i zvieracie vlastnosti, je nerozumná a mohla vzniknúť len v takom duchovnom smere, ktorý nepozná dokonalosť prazákonov
+	- Mág takýmto mylným názorom nevenuje pozornosť
+	- Pre magicko-mystický vývin musí mág dodržiavať iba striedmosť v pití a v jedle a musí viesť rozumnú životosprávu
+	- Každý musí najlepšie vedieť sám, čo mu svedčí a čo mu škodí a jeho svätou povinnosťou je udržiavať vo všetkom rovnováhu
+- Druhy askézy:
+	- Rozoznávame tri druhy askézy:
+		- duchovná (mentálna) askéza:
+			- disciplína myšlienky
+		- duševná (astrálna) askéza:
+			- zušľachťovanie duše, ovládanie vášní a pudov
+		- telesná (materiálna) askéza:
+			- sleduje súlad tela, striedmy a prirodzený život
+	- Bez týchto troch spôsobov askezy, ktoré je nutné vyvíjať súbežne, nie je správny magický vzostup mysliteľný
+	- Žiadny z týchto spôsobov nesmie byť zanedbaný, žiadnemu nesmie byť daná prednosť, ak nemá vývin byť jednostranný
+	- Nastávajúci mág príde k poznaniu, že v jednotlivých úrovniach je práca živlov podmienkou života
+	- Je samozrejmé, že sily pracujú a pôsobia ako v malom, tak aj vo veľkom, v mikrokozme aj v makrokozme, v dočasnom aj vo večnom
+	- Z tohto poznania nie je smrťou v pravom slova zmysle, ale podľa prazákonov žije všetko ďalej, mení a zdokonaľuje sa
+	- Mág sa preto smrti nebojí, lebo fyzická smrť je iba prechodom do oveľa jemnejšej sféry, do astrálnej sféry, odtiaľ do duchovnej úrovne, mág neverí preto ani v nebo ani v peklo, na tejto predstave lipnú kňazi najrôznejších náboženstiev, aby udržali svojich veriacich
+		- Ich morálne kázanie slúžia na to, aby vyvolávali bázeň pred peklom a očistcom a sľubovali morálne dobrému človeku nebo
+		- Pre priemerného človeka, pokiaľ je nábožensky založený, má aj tento názor svoje dobré stránky, aspoň sa zo strachu z pekla vynasnaží zostať dobrým
+		- Mágovi však slúžia morálne zákony na to, aby dušu a ducha zušľachťoval
+		- Len v zušľachtenej duši môžu univerzálne sily pôsobiť, najmä vtedy, keď telo, duša a duch sú rovnomerne školené a vyvinuté

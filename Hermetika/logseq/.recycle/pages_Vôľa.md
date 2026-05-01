@@ -1,0 +1,5 @@
+- [[Oheň]]
+- Základná vlastnosť ducha
+- Aspekt univerzálneho živlu [ohňa](Oheň)
+- Aktívne sa prejavuje iba v obsahu alebo cieľa priania
+- Sila vôle je sila pomocou, ktorej naše prianie a našu cestu vykonáme, dosiahneme, zvládneme a obdržíme

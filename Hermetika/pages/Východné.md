@@ -1,0 +1,28 @@
+# Krajiny
+- Indi
+	- Hinduistická tantra
+		- Energetická práca (kundaliní), mantry, čakry, joga zasvätenia
+	- Vedanta a Upanišady
+		- Duchovné zasvätenie do poznania Átmanu a Brahmanu
+	- Buddhistická tantra (vadžrajána)
+		- Tibetský buddhizmus, iniciačné rituály, mandaly a božstvá
+	- Sádhu a guru tradície
+		- Priame zasvätenie od duchovného učiteľa (dikša)
+- Aziati
+	- Daoizmus
+		- Alchýmia, energetická práca (čchi), nesmrteľnosť, taoistické rituály
+	- Zen buddhizmus
+		- Nepriame zasvätenie cez koany a priamu skúsenosť Satori
+	- Šintoizmus (Japonsko)
+		- Posvätné rituály spojené s kami (duchmi), šamanské korene
+	- Bön (predbuddhistický Tibet)
+		- Stará šamanská tradícia s rituálnou mágiou
+- Domorodci (mimo európske smery)
+	- Amazonský šamanizmus
+		- Práca s duchmi, tranz, rastliny sily
+	- Severoamerickí indiáni
+		- Potné chýše, vízie, totemy, rituály duchovného spojenia
+	- Africké kulty
+		- Práca s duchmi, tranz, rastliny sily
+	- Austrálski aboridžinci
+		- “dreamtime” mytológia, piesňové línie, rituály so Zemou

@@ -1,0 +1,46 @@
+# Krajiny
+- Gréci
+	- Orfizmus
+		- Mystériá okolo boha Orfea, dôraz na očistu duše a reinkarnáciu
+	- Eleusínske mystériá
+		- Zasvätenie do kultu Demeter a Persefony, témy smrti a znovuzrodenia
+	- Pytagoreizmus
+		- Duchovná disciplína založená na číslach, harmónii a reinkarnácii
+- Egypťania
+	- Kult Osirisa, Izis a Hora
+		- Mystéria spojené so smrťou, regeneráciou a večným životom
+	- Kňazské zasvätenia v chrámoch
+		- Astrálne cestovanie, božské mená, magické písmo (hieroglyfy)
+- Rimania
+	- Mithraizmus
+		- Vojenské mysteriózne náboženstvo s postupnými stupňami zasvätenia
+	- Kult Kybelé a Attisa
+		- Extatické a krvavé rituály z Malej Ázie
+	- Rituály viazané na štátnych bohov
+		- Zasvätenia cez pontifikov a augurov
+- Židia
+	- Kabala
+		- Mystická tradícia s dôrazom na Sefirot, božie mená a meditácie
+	- Praktická kabala
+		- Kombinácia modlitieb, sigílií a božských mien na magické účely, grimoár
+	- Merkava mystika
+		- Vízie božieho trónu, astrálne výstupy, prorocká extáza
+- Anglosasi / Kelti / Germáni
+	- Druidizmus
+		- Prírodné náboženstvo, sväté háje, posvätné symboly (napr. ogham)
+	- Severské rúnové zasvätenia
+		- Práca s runami, seidr (šamanská mágia), Ódinovo sebazasvätenie
+	- Anglosaský pohanský revival
+		- napr. Witchcraft, Wicca, Heathenry, Faery, Asatru, Hellenism, Kemetism
+- Slovania
+	- Rodnověří (rodná viera)
+		- rekonštrukcia slovanskej spirituality, zasvätenie duchom prírody
+	- Kult predkov a božstiev (Perun, Veles, Mokoš)
+		- rituály v prírode, obety, šamanské prvky
+	- Magické piesne, duchovia prírody a zaklínadlá (zagovory)
+		- ľudová mágia spojená s liečiteľstvom
+- Domorodci (európske a severské smery)
+	- Sibírsky šamanizmus
+		- práca s duchmi, tranz
+	- Európske ľudové čary
+		- tradičné magické techniky bežného ľudu, prenášané ústne alebo cez jednoduché zápisky

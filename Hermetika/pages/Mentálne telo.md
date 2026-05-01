@@ -1,0 +1,24 @@
+- [[Mentálna úroveň]]
+- Inak aj ako duch
+- Je jedinou nesmrteľnou časťou [človeka](Človek), a verným obrazom božím, nie je teda ľahké rozobrať a popísať vhodnými slovami niečo takéto božské, nesmrteľné, nepominuteľné, preto ako pri každom probléme vezmeme na pomoc kľúč štvorpólového magnetu
+- Je bez času a priestoru
+- Tvorí v sebe náležitou prácou štvorpólový magnet
+- Prejavuje analogicky s astrálnym telom navonok svoje elektromagnetické fluidum následkom pôsobenia živlov ako sprievodný zjav svojej polarity
+- Prejav na mentálnej úrovni sa analogicky porovnáva s astrálnym telom, pričom elektromagnetické fluidum vytvára následkom živlov
+	- Toto fluidum slúži ako sprievodný zjav polarity ducha na mentálnej úrovni
+		- Rovnako je to u mentálneho tela v mentálnej alebo duchovnej úrovni
+- Z najvyššej prapríčiny (akáše), z prazdroja všetkého bytia, z duchovnej pralátky vzišiel duch:
+	- Duchovný Ja so štyrmi špecifickými živlovými vlastnosťami, ktoré patria nesmrteľnému, podľa obrazu božieho stvorenému duchu:
+		- Ohnivý princíp -> praživel ohňa -> impulzívna časť -> tvorí vôľa:
+			- moc, sila, vášeň
+		- Vodný princíp -> praživel vody -> pocitová časť -> tvorí život:
+			- svedomie, intuícia
+		- Vzdušný princíp -> praživel vzduchu -> rozumová časť -> tvorí intelekt:
+			- pamäť, posudzovanie, rozlišovanie
+		- Zemný princíp -> praživel zeme -> spojka všetkých troch živlov -> tvorí ono vedomie „JA“:
+			- sebectvo, pud sebazáchovy, pud rozmnožovania
+		- Akášický princíp -> časť pudu sebazáchovy -> tvorí vieru
+	- Tieto štyri praživle:
+		- Sú základňou všetkých ostatných vlastností ducha
+		- Má presne podľa zákona analógia polarity ešte mnoho aspektov po stránke pozitívnej aj negatívnej
+		- Dohromady tvoria ono „JA“ alebo DUCHA

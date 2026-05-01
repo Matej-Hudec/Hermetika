@@ -1,0 +1,11 @@
+- [[Hrudník]], [[Vzduch]]
+- Základná vlastnosť večného ducha
+- Aspekt univerzálneho živlu [vzduchu](Vzduch) [mentálnej úrovni](Mentálna úroveň)
+- Všeobecne sídli v [hrudníku](Hrudník) ľudského tela
+- Je zmerateľný
+- Pomocou intelektu dokážeme veci:
+	- chápať
+	- poznávať
+	- rozoznávať
+	- posudzovať
+	- pamätať

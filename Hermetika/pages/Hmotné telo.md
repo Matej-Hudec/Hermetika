@@ -1,0 +1,209 @@
+- [[Hmotná úroveň]]
+- Inak aj ako hrubohmotné telo, fyzické telo
+- Povstalo jemnejšími živlovými kmitmi, elektrickým a magnetickým fluidom živlovej polarity
+- Má päť zmyslov, ktoré zodpovedajú piatim [živlom](Živel)
+- Je obyčajným obalom, čiže odevom [ducha](Mentálne telo)
+- Ten kto sa naučí manipulovať so živlami v ich najjemnejšej forme, dokáže už na vlastnom tele hotové zázraky, ale nielen to, môže potom tiež právom tvrdiť, že v tomto smere nie je nič nemožné
+- Zdravé hmotné telo z hermetického hľadiska:
+	- Udržiavanie v tele všetkých účinkujúcich síl v dokonalej harmónie, so zreteľom na základné vlastnosti [živlov](Živel)
+	- Dokonale zdravé telo je to základnou podmienkou k duchovnému rastu
+	- Ak chceme krásne bývať, musíme svoje obydlie, v tomto prípade svoje telo, urobiť krásnym a harmonickým
+- Pôsobenie [živlov](Živel) na hmotné telo:
+	- Podľa univerzálnych zákonov zastávajú živly v tele človeka určité funkcie:
+		- Budovateľské (pozitívne, tvorivé):
+			- V tele robia pozitívne vlastnosti [živlov](Živel), teda pripadá aktívnej stránke [živlov](Živel)
+		- Udržovacie (usmerňovacie, neutrálne):
+			- V tele riadi spojovacia teda neutrálna časť vlastností [živlov](Živel)
+		- Rozkladné (negatívne, spaľovacie):
+			- V tele robia negatívne vlastnosti [živlov](Živel)
+	- Konkrétne príklady funkcií [živlov](Živel) na hmotné telo:
+		- [Ohnivý princíp](Oheň):
+			- Vo svojej aktivite buduje, expanduje (napríklad neurónové spojenia v hlave)
+			- Vo svojej negativite rozkladá, ničí (napríklad neurónové spojenia v hlave)
+		- [Vodný princíp](Voda):
+			- Vo svojej aktivite buduje všetky tekutiny
+			- Vo svojej negativite rozkladá všetky tekutiny (napríklad vylučovanie)
+		- [Vzdušný princíp](Vzduch):
+			- Má za úlohu usmerňovať v tele elektrické fluidum ohňa a magnetické fluidum vody a udržiavať ich v rovnováhe
+			- Je považovaný za princíp neutrálny alebo sprostredkovateľský
+			- Mechanické dýchanie
+		- [Zemný princíp](Zem):
+			- V tele má úlohu udržiavať spolu všetky tri živlové činnosti
+			- Vo svojej aktivite telo oživuje, silnie, buduje (rast tela), udržuje
+			- Vo svojej negativite telo slabne, chabne, starne
+		- [Akášický princíp](Akáša):
+			- Má za úlohu napríklad rozmnožovanie
+	- Konkrétne pôsobenie [živlov](Živel) v častiach hmotného tela:
+		- Hlava:
+			- [Ohnivý princíp](Oheň)
+		- Brucho:
+			- [Vodný princíp](Voda)
+		- Hrudník:
+			- [Vzdušný princíp](Vzduch)
+		- Celé telo:
+			- [Zemný princíp](Zem)
+		- Krv, spermie, vajíčka:
+			- [Akášický princíp](Akáša)
+	- Potrava človeka:
+		- V potrave sú [živly](Živel) obsiahnuté pomiešane
+		- Do tela sa dostanú chemickým procesom
+		- Z hľadiska medicíny vyvoláva príjem akejkoľvek potravy spolu s dychom v tele spaľovací proces
+		- Hermetik vidí oveľa viac ako obyčajný chemický postup vidí vzájomné rozpúšťanie potravy
+		- Môžeme to porovnať s ohňom, ktorého plameň je udržovaný pomocou paliva teda ako u ohňa na potrave a dychu, závisí život človeka
+		- Aby každý [živel](Živel) dostal potrebnú pohonnú látku, je vhodné prijímať zmiešanú potravu, ktorá obsahuje [živlové](Živel) základné látky
+		- Keby sme boli napríklad po celý život odkázaní iba na jednostrannú stravu, naše telo by bezpodmienečne ochorelo, teda stalo by sa disharmonickým
+		- Rozkladný proces, vyvolaný vzduchom a potravou, dodáva [živlom](Živel) potrebnú látku, ktorá ich udržuje v stálej činnosti to je prirodzený spôsob ľudského života
+		- Ak chýba jednému alebo druhému [živlu](Živel) potrebná, teda pohonná látka, prejavuje sa to hneď v príslušných funkciách:
+			- [Ohnivý živel](Oheň):
+				- Pri jeho nedostatku, vyvolá sa v tele k zvýšeniu jeho činnosti, pocítime smäd
+				- Pri jeho presýtení, vyvolá sa v tele k zvýšeniu jeho činnosti, pocítime túžbu po pohybe a činnosti
+			- [Vodný živel](Voda):
+				- Pri jeho nedostatku, vyvolá sa v tele k zvýšeniu jeho činnosti, pocítime zimu
+				- Pri jeho presýtení, vyvolá sa v tele k zvýšeniu jeho činnosti, pocítime väčšie vylučovanie
+			- [Vzdušný živel](Vzduch):
+				- Pri jeho nedostatku, vyvolá sa v tele k zvýšeniu jeho činnosti, pocítime hlad
+				- Pri jeho presýtení, vyvolá sa v tele k zvýšeniu jeho činnosti, upozorňuje, aby sme sa v jedle obmedzili
+			- [Zemný živel](Zem):
+				- Dostane v tele k väčšej činnosti, teda pri jeho nedostatku pocítime únavu
+				- Pri jeho presýtení, vyvolá sa v tele k zvýšeniu jeho činnosti, ovplyvňuje telo človeka v aspektoch pohlavného života, čo sa nemusí vybíjať pohlavnými pudmi, ale najmä u starších ľudí, sa dostaví túžba po zvýšenej pracovnej činnosti, po vonkajšej tvorivosti
+		- Elektrické a magnetické fluidum:
+			- Má vo svojej polarite, teda aktívne a pasívne, vo všetkých organických a anorganických telesách z chemického, prípadne alchymického hľadiska za úlohu tvorenie kyselín a zásad
+			- Po aktívnej stránke buduje a po pasívnej rozpúšťa, rozkladá, ničí
+		- Potravinová diéta a spôsoby vyrovnávania [živlov](Živel):
+			- Rozumná životospráva udržuje harmóniu živlov v tele
+			- Ak dôjde k disharmónii činnosti živlov tým, že jeden alebo druhý živel buď prevláda, alebo bol zoslabený, musíme urobiť v prijímaní potravy osobitné opatrenia, aby živly boli opäť uvedené do normálnych koľají alebo aby boli aspoň v tomto smere priaznivo ovplyvnené
+			- Z tohto dôvodu sa pre zvláštne prípady predpisujú najrôznejšie diéty
+			- Už oddávna dospel priemerný človek k tomuto názoru bez toho, aby bol pochopil jeho pravú príčinu
+			- Ak je živlová porucha takého rozsahu, že sa disharmónia prejavuje už viditeľne, nejde len o obyčajnú disharmóniu, ale o skutočné ochorenie
+			- Nezostáva potom než siahnuť k drastickejším prostriedkom, aby opäť došlo k žiaducej harmónii, ak má byť dosiahnuté úplné uzdravenie a telo uvedené do normálneho chodu
+			- Na tejto základni boli vybudované všetky doposiaľ známe liečebné sústavy
+			- Prírodná liečba odporúča termické prostriedky, ako: kúpele, zábaly, obklady, bylinky, masáže
+			- Alopatický lekár užíva koncentrované liečebné prostriedky, ktoré majú vyvolať účinok zodpovedajúci živlom a prispieť k uzdraveniu
+			- Homeopat zvyšuje pomocou svojich liečebných prostriedkov similia similibus curantur činnosť opačného živlu, aby ohrozený živel uviedol so zreteľom na jeho polaritu do rovnováhy
+			- Elektrohomeopat pôsobí uplatnením svojich prostriedkov priamo na elektrické a magnetické fluidum, aby podľa povahy ochorenia vyrovnal náležitým zosilnením týchto fluid aj živel, ktorý sa stal disharmonickým
+			- Tak sleduje každá liečebná sústava jeden a ten istý cieľ teda porušenú živlovú rovnováhu opäť napraviť
+			- Znalosť pôsobenia živlov v tele dáva magnetopatoyi čiže magnetizérovi oveľa väčšiu možnosť zasiahnuť svojimi silami najmä vtedy, keď je schopná prebudiť v sebe vedome elektrické alebo magnetické fluidum, zosilniť ich a podľa analogických zákonov preniesť na ochorenú časť tela
+		- Okultná anatómia tela:
+			- Každú časť tela ovplyvňuje podľa analógie živlov ešte živel špecifický, ktorý sa prejavuje v polarite tej ktorej časti tela
+			- Zaujímavá je skutočnosť, že v chode, respektíve v mechanizácii majú niektoré orgány striedavo z vnútra navonok elektrické, a zvonku do vnútra magnetické fluidum, ktoré prispieva k tomu, aby chod a funkcie v celkovom organizme boli harmonické a analogické
+			- U iných orgánov je tomu naopak: elektrické fluidum pôsobí zvonku aj do vnútra a magnetické z vnútra navonok
+			- Znalosť pólového žiarenia nazýva hermetická veda „okultnou anatómiou tela“
+			- Znalosť účinku tejto okultnej anatómie je pre každého zasvätenca veľmi dôležitá, ak chce svoje telo poznať, ovplyvňovať a ovládať
+			- Rozpísané časti tela:
+				- Hlava:
+					- Predná časť hlavy elektrická
+					- Zadná časť hlavy magnetická
+					- Pravá strana hlavy magnetická
+					- Ľavá strana hlavy elektrická
+					- Vnútro hlavy elektrické
+				- Oči:
+					- Predná časť očí neutrálna
+					- Zadná časť očí neutrálna
+					- Pravá strana očí elektrická
+					- Ľavá strana očí elektrická
+					- Vnútro očí magnetické
+				- Uši:
+					- Predná časť uší neutrálna
+					- Zadná časť uší neutrálna
+					- Pravá strana uší magnetická
+					- Ľavá strana uší elektrická
+					- Vnútro uší neutrálne.
+				- Ústa:
+					- Predná časť úst neutrálna
+					- Zadná časť úst neutrálna
+					- Pravá strana úst neutrálna
+					- Ľavá strana úst neutrálna
+					- Vnútro úst magnetické
+				- Jazyk:
+					- Predná časť jazyka neutrálna
+					- Zadná časť jazyka neutrálna
+					- Pravá strana jazyka neutrálna
+					- Ľavá strana jazyka neutrálna
+					- Vnútro jazyka magnetické
+				- Krk:
+					- Predná časť krku magnetická
+					- Zadná časť krku magnetická
+					- Pravá strana krku magnetická
+					- Ľavá strana krku elektrická
+					- Vnútro krku elektrické
+				- Hrudník:
+					- Predná časť hrudníka elektromagnetická
+					- Zadná časť hrudníka elektrická
+					- Pravá strana hrudníka neutrálna
+					- Ľavá strana hrudníka elektrická
+					- Vnútro hrudníka neutrálne
+				- Brucho:
+					- Predná časť brucha elektrická
+					- Zadná časť brucha magnetická
+					- Pravá strana brucha magnetická
+					- Ľavá strana brucha elektrická
+					- Vnútro brucha magnetické
+				- Ruky:
+					- Predná časť ruky neutrálna
+					- Zadná časť ruky neutrálna
+					- Pravá strana ruky magnetická
+					- Ľavá strana ruky elektrická
+					- Vnútro ruky neutrálne
+				- Prsty pravej ruky:
+					- Predné časti prstov neutrálne
+					- Zadné časti prstov neutrálne
+					- Pravá strana prstov elektrická
+					- Ľavá strana prstov elektrická
+					- Vnútro prstov neutrálne
+				- Prsty ľavej ruky:
+					- Predné časti prstov neutrálne
+					- Zadné časti prstov neutrálne
+					- Pravá strana prstov elektrická
+					- Ľavá strana prstov elektrická
+					- Vnútro prstov neutrálne
+				- Nohy:
+					- Predné časti nôh neutrálne
+					- Zadné časti nôh neutrálne
+					- Pravá strana nôh magnetická
+					- Ľavá strana nôh elektrická
+					- Vnútro nôh neutrálne
+				- Mužský pohlavný úd:
+					- Predná časť penisu elektrická
+					- Zadná časť penisu neutrálna
+					- Pravá strana penisu neutrálna
+					- Ľavá strana penisu neutrálna
+					- Vnútro penisu magnetické
+				- Ženské pohlavné ústrojenstvo:
+					- Predná časť ženského pohlavného ústrojenstva magnetická
+					- Zadná časť ženského pohlavného ústrojenstva neutrálna
+					- Pravá strana ženského pohlavného ústrojenstva neutrálna
+					- Ľavá strana ženského pohlavného ústrojenstva neutrálna
+					- Vnútro ženského pohlavného ústrojenstva elektrické
+				- Posledný stavec chrbtice:
+					- Predná časť posledného stavca chrbtice neutrálna
+					- Zadná časť posledného stavca chrbtice neutrálna
+					- Pravá strana posledného stavca chrbtice neutrálna
+					- Ľavá strana posledného stavca chrbtice neutrálna
+					- Vnútro posledného stavca chrbtice magnetické
+				- Konečník:
+					- Predná časť konečníka neutrálna
+					- Zadná časť konečníka neutrálna
+					- Pravá strana konečníka neutrálna
+					- Ľavá strana konečníka neutrálna
+					- Vnútro konečníka magnetické
+			- Na základe tejto okultnej anatómie si môže zasvätenec analogicky zostaviť kľúč štvorpólového magnetu podľa svojej potreby
+			- Alchymista z toho pozná, že je ľudské telo skutočným atanátorom, v ktorom sa viditeľne odohráva najdokonalejší alchymistický proces -> a je to jeho príprava na vytvorenie kameňa mudrcov vo svojom tele
+- Pôsobenie fluidou na telo človeka:
+	- Konkrétne pôsobenie fluidou v častiach tela človeka:
+		- V celom tele človeka:
+			- Elektromagnetické:
+				- Vyžarovacia sila elektromagnetického fluida závisí od toho, ako intenzívne živly v tele pôsobia
+				- Čím zdravšie a ladnejšie pôsobenie živlov v tele prebieha, tým mocnejšie a čistejšie je toto žiarenie
+				- Vhodným cvičením, správnym postojom a presným dodržiavaním týchto zákonov môžeme kapacitu, silu a pôsobivosť elektromagnetického fluida (ódu) podľa potreby zvýšiť alebo znížiť
+		- Pravá strana tela človeka (u praváka):
+			- Aktívne elektrická
+			- Pasívne magnetická
+		- Ľavá strana tela človeka (u praváka):
+			- Aktívne magnetická
+			- Pasívne elektrická
+		- Pravá strana tela človeka (u ľaváka):
+			- Aktívne magnetická
+			- Pasívne elektrická
+		- Ľavá strana tela človeka (u ľaváka):
+			- Aktívne elektrická
+			- Pasívne magnetická
