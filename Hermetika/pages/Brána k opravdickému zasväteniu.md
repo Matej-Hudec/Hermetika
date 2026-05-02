@@ -1,2 +1,4 @@
 - [[1. Časť -> Teoretické zasväcovanie]], [[2. Časť -> Praktické zasväcovanie]], [[Pomôcka k introspekcií]], [[Otázky na Mistra Ariona]]
 - [Brána k opravdovému zasvěcení](https://www.martinus.sk/64013-brana-k-opravdovemu-zasveceni/kniha)
+- Za mňa možnosť nahradiť systémom výstup by mal byť rovnaký
+	- [Lyam Thomas Christopher - Kabbalah, Magic](https://www.google.sk/books/edition/Kabbalah_Magic_and_the_Great_Work_of_Sel/VBodeXR2hD4C?hl=sk&gbpv=0)
