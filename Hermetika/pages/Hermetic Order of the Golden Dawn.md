@@ -1,4 +1,5 @@
 # Hermetický rád Zlatého úsvitu
+- [Lyam Thomas Christopher - Kabbalah, Magic](https://www.google.sk/books/edition/Kabbalah_Magic_and_the_Great_Work_of_Sel/VBodeXR2hD4C?hl=sk&gbpv=0)
 - Vznikol v roku 1888 v Londýne
 - Založili ho traja slobodomurári:
 	- William Robert Woodman, William Wynn Westcott a Samuel Liddell MacGregor Mathers
